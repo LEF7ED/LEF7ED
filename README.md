@@ -24,4 +24,6 @@
 
 以及
 # 不要看到繁體字就不認人哼啊啊啊啊啊啊 
-![](https://ts1.cn.mm.bing.net/th?id=OIP-C.hSSj2p6mEloVkalmemLyIgHaEn&w=175&h=185&c=8&rs=1&qlt=90&o=6&pid=3.1&rm=2)
+![](https://ts1.cn.mm.bing.net/th?id=OIP-C.hSSj2p6mEloVkalmemLyIgHaEn&w=175&h=185&c=8&rs=1&qlt=90&o=6&pid=3.1&rm=2) \
+
+（其實這個真名neta自GigaChad）
